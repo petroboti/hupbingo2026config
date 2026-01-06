@@ -1,0 +1,1 @@
+# hupbingo2026config
